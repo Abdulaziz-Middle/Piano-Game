@@ -1,0 +1,1 @@
+Abdulazizbek tomonidan 2023 yil ishlab chiqarilgan
